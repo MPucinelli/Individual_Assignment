@@ -1,5 +1,3 @@
 # Individual_Assignment
 
-Bruh this is my individual assignment, Kostis is a Gangsta
-
-West side baby
+Okay this is a real professional code Im so professionally coding right now you guys
